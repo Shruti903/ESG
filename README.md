@@ -1,5 +1,2 @@
 # ESG
-hi
-hos 
 
-hahahahab
